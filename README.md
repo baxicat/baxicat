@@ -1,5 +1,5 @@
 <div align="center">
 
-![](https://imgur.com/d9RejBL)
+![](https://imgur.com/a/d9RejBL)
 
 </div>
